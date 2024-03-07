@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rootbaku
+- 👀 I’m interested in CyberSecurity
+- 🌱 I’m currently learning IT
+- 💞️ I’m looking to collaborate on Team
